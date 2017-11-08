@@ -1,1 +1,0 @@
-# GIS-OSU-Ryan.github.io
